@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://topazdragonflydefend.github.io/wiztree-for-pc-te16/ ) |
  |---------------------|----------------------:|
 
 
