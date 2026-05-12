@@ -1,4 +1,4 @@
-# 
+# WizTree for PC | WizTree for Windows best Tool: duplicate-detection & network-drive-support is the best WizTree for PC | WizTree for Windows tool, featuring duplicate-detection
 
 
 
